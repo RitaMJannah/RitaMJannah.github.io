@@ -1,8 +1,11 @@
 # Menulis sebagai Ancaman Politik: Mengapa Kekuasaan Selalu Berusaha 
 
-Reduksi menulis sebagai kerja murah adalah strategi kekuasaan untuk membungkam kebenaran
+<figure>
+  <img src="IMG_2284.jpeg" alt="BotBot">
+  <figcaption><strong>Gambar.</strong> Penulis, pembentuk makna.</figcaption>
+</figure>
 
-
+### Reduksi menulis sebagai kerja murah adalah strategi kekuasaan untuk membungkam kebenaran
 
 Sepanjang sejarah, menulis tidak pernah netral. Ia adalah tindakan politik yang mengancam stabilitas kekuasaan, sebab ia bekerja pada wilayah paling berbahaya: pembentukan makna. 
 
