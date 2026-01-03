@@ -1,6 +1,12 @@
 # Orde Dunia Modern sebagai Paradoks Moral: Kekuasaan, Pasar, dan Dekonstruksi Kedaulatan Internasional
 
-* Kasus Palestina, Ukraina, Yaman, dan Taiwan menunjukkan bahwa kedaulatan tidak bersifat universal, melainkan bersyarat pada posisi geopolitik negara tersebut
+<figure>
+  <img src="IMG_2321.jpeg" alt="Kedaulatan">
+  <figcaption><strong>Gambar.</strong> Ilustrasi kedaulatan tidak universal</figcaption>
+</figure>
+
+
+***Kasus Palestina, Ukraina, Yaman, dan Taiwan menunjukkan bahwa kedaulatan tidak bersifat universal, melainkan bersyarat pada posisi geopolitik negara tersebut***
 
 
 Orde dunia pasca-Perang Dingin sering dipromosikan sebagai sistem internasional berbasis aturan, hak asasi manusia, dan kedaulatan negara. 
@@ -102,7 +108,7 @@ Dan ya… argumen ini tidak bisa dibatalkan hanya dengan label emosi atau stigma
 
 
 
-* Referensi 
+**Referensi**
 
 Acharya, A. (2018). The end of American world order. Polity Press.
 
