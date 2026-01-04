@@ -1,10 +1,9 @@
-
-Ilustrasi penangkapan Presiden Venezuela Nicholas Maduro (Pic: Grok)
-
-
-
 # Kedaulatan di Bawah Ancaman: Penangkapan Kepala Negara, Hukum Internasional, dan Dominasi Kekuasaan Global
 
+<figure>
+  <img src="IMG_2322.jpeg" alt="Kedaulatan">
+  <figcaption><strong>Gambar.</strong> Ilustrasi penangkapan Presiden Venezuela Nicholas Maduro (pic:Grok)</figcaption>
+</figure>
 
 ***Tindakan penangkapan atau penculikan pemimpin negara oleh negara lain harus melalui mekanisme hukum internasional yang sah***
 
