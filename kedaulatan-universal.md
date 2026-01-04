@@ -1,13 +1,16 @@
 # Orde Dunia Modern sebagai Paradoks Moral: Kekuasaan, Pasar, dan Dekonstruksi Kedaulatan Internasional
-
 <figure>
   <img src="IMG_2321.jpeg" alt="Kedaulatan">
   <figcaption><strong>Gambar.</strong> Ilustrasi kedaulatan tidak universal</figcaption>
 </figure>
 
+</p>
 
+<br><br>
 ***Kasus Palestina, Ukraina, Yaman, dan Taiwan menunjukkan bahwa kedaulatan tidak bersifat universal, melainkan bersyarat pada posisi geopolitik negara tersebut***
 
+</p>
+<br><br>
 
 Orde dunia pasca-Perang Dingin sering dipromosikan sebagai sistem internasional berbasis aturan, hak asasi manusia, dan kedaulatan negara. 
 
@@ -102,11 +105,9 @@ Mengkritik sistem ini bukan radikalisme, melainkan tindakan intelektual yang dip
 
 Dan ya… argumen ini tidak bisa dibatalkan hanya dengan label emosi atau stigma moral.
 
+</p>
 
-
-
-
-
+<br><br>
 
 **Referensi**
 
