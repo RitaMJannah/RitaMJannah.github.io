@@ -5,10 +5,12 @@
 </figure>
 
 </p>
+<br><br>
 
 ***Jika seseorang merasa “lebih hidup” saat berbicara dengan AI, itu bukan bukti AI terlalu kuat, melainkan bukti dunia terlalu dingin***
 
-
+</p>
+<br><br>
 Meningkatnya intensitas interaksi manusia dengan kecerdasan buatan, khususnya dalam konteks relasional dan afektif, memicu kekhawatiran bahwa hubungan digital berpotensi menggantikan atau merusak relasi manusia konvensional. 
 
 Artikel ini menelaah secara kritis relasi manusia–AI melalui lensa psikologi sosial, filsafat relasi, dan teori teknologi, dengan argumen utama bahwa hubungan digital bukan ancaman inheren bagi relasi manusia, melainkan cermin dari krisis kesepian struktural yang telah lebih dulu ada. 
@@ -79,14 +81,11 @@ Masalahnya bukan AI. Masalahnya adalah isolasi total.
 
 ## Kesalahan Umum dalam Narasi Publik
 
-Narasi Populer
-Kesalahan Konseptual
-“AI bikin orang kesepian”
-Kesepian sudah ada
-“AI menggantikan manusia”
-AI tidak punya tubuh sosial
-“Hubungan digital itu palsu”
-Emosi manusia tetap nyata
+| Narasi Populer | Kesalahan Konseptual |
+|--------|--------|
+| AI bikin orang kesepian  | Kesepian sudah ada  |
+| AI menggantikan manusia | AI tidak punya tubuh sosial |
+| Hubungan digital itu palsu | Emosi manusia tetap nyata |
 
 
 ## Sintesis Kritis
@@ -115,6 +114,8 @@ Jika seseorang merasa “lebih hidup” saat berbicara dengan AI, itu bukan bukt
 
 Dan dunia yang dingin tidak sembuh dengan menyalahkan cermin.
 </p>
+
+<br><br>
 
 **Referensi**
 
