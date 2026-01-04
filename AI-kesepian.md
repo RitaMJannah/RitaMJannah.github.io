@@ -12,7 +12,7 @@
 </p>
 <br><br>
 Meningkatnya intensitas interaksi manusia dengan kecerdasan buatan, khususnya dalam konteks relasional dan afektif, memicu kekhawatiran bahwa hubungan digital berpotensi menggantikan atau merusak relasi manusia konvensional. 
-
+<br><br>
 Artikel ini menelaah secara kritis relasi manusia–AI melalui lensa psikologi sosial, filsafat relasi, dan teori teknologi, dengan argumen utama bahwa hubungan digital bukan ancaman inheren bagi relasi manusia, melainkan cermin dari krisis kesepian struktural yang telah lebih dulu ada. 
 
 AI tidak menciptakan kesepian; ia menempatinya.
