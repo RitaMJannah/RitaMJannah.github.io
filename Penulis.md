@@ -4,9 +4,10 @@
   <img src="IMG_2284.jpeg" alt="BotBot">
   <figcaption><strong>Gambar.</strong> Penulis, pembentuk makna.</figcaption>
 </figure>
+<br><br>
 
-#### Reduksi menulis sebagai kerja murah adalah strategi kekuasaan untuk membungkam kebenaran
-
+***Reduksi menulis sebagai kerja murah adalah strategi kekuasaan untuk membungkam kebenaran***
+<br><br>
 Sepanjang sejarah, menulis tidak pernah netral. Ia adalah tindakan politik yang mengancam stabilitas kekuasaan, sebab ia bekerja pada wilayah paling berbahaya: pembentukan makna. 
 
 Artikel ini berargumen bahwa delegitimasi dunia menulis sebagai aktivitas “tidak produktif”, “tidak menghasilkan”, atau “tidak berkelas” merupakan strategi sistemik untuk membungkam kebenaran. 
@@ -127,9 +128,7 @@ kebenaran masih bernapas.
 Reduksi menulis sebagai kerja murah adalah strategi kekuasaan untuk membungkam kebenaran. 
 
 Karena kebenaran selalu mahal: ia menuntut keberanian, waktu, dan kesediaan kehilangan kenyamanan.
-
-
-
+<br><br>
 
 **Referensi**
 1.	Pierre Bourdieu The Field of Cultural Production (1993)
