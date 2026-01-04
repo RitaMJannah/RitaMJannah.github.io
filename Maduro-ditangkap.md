@@ -4,9 +4,12 @@
   <img src="IMG_2322.jpeg" alt="Kedaulatan">
   <figcaption><strong>Gambar.</strong> Ilustrasi penangkapan Presiden Venezuela Nicholas Maduro (pic:Grok)</figcaption>
 </figure>
+</p>
+<br><br>
 
 ***Tindakan penangkapan atau penculikan pemimpin negara oleh negara lain harus melalui mekanisme hukum internasional yang sah***
-
+</p>
+<br><br>
 
 Kasus dugaan penangkapan atau penculikan Presiden Venezuela pada 4 Januari 2026 (dengan sejumlah media melaporkan intervensi AS) memperlihatkan ketegangan antara prinsip kedaulatan negara dan praktik intervensi oleh negara kuat. 
 
@@ -119,13 +122,9 @@ Tanpa itu, tindakan seperti yang diklaim terhadap Maduro:
 •	berpotensi menciptakan preseden berbahaya
 
 Dan jika ini dilakukan tanpa mandat legitimasi global, bukan hanya Venezuela yang berisiko — seluruh sistem negara berdaulat akan terkikis sedikit demi sedikit.
+</p>
 
-
-
-
-
-
-
+<br><br>
 
 **Referensi**
 
