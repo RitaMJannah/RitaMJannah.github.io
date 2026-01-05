@@ -1,5 +1,7 @@
 # Penangkapan Presiden Venezuela dan Erosi Kedaulatan: Hukum Internasional di Bawah Bayang-Bayang Politik Energi
 
+![Venezuela](images/IMG_2324.jpeg)
+*Ilustrasi penangkapan Presiden Venezuela Nicholas Maduro (pic: Grok).*
 <br><br>
 ***Meskipun narasi awal difokuskan pada penanggulangan kejahatan, motif energi tampak menjadi faktor determinan***
 <br><br>
@@ -86,7 +88,9 @@ Kasus penangkapan Maduro oleh militer AS pada awal 2026 merupakan contoh nyata d
 Meskipun narasi awal difokuskan pada penanggulangan kejahatan, motif energi tampak menjadi faktor determinan terhadap tindakan tersebut. 
 
 Tindakan yang bertentangan dengan prinsip kedaulatan negara ini menandai pergeseran berbahaya dalam politik global dan menimbulkan tantangan serius bagi masa depan tatanan internasional berbasis aturan.
+
 <br><br>
+
 **Referensi** 
 
 Anderson, M. (2010). International law and the sovereign state: The evolution of the concept of sovereignty.Routledge.
