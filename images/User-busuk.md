@@ -1,4 +1,5 @@
 # Dari Grok ke Deepfake: Penyalahgunaan AI, Kekerasan Seksual Digital, dan Ilusi Netralitas Teknologi dalam Kapitalisme Platform
+
 ![User](images/33a0e3e9-c091-4c4e-b985-e09d69b61a78.jpeg)
 *Ilustrasi penyalahgunaan artificial intelligence (pic: Meta AI).*
 
