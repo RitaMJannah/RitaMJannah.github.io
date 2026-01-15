@@ -1,6 +1,6 @@
 # Moral di Panggung, Uang di Belakang Layar: Mengapa Negara-Negara Barat Mengecam Deepfake secara Etis tetapi Membiarkan Pasarnya Tumbuh
 ![kejahatan](images/138e469d-43a0-476f-86a0-5e05d8085fe2.jpeg)
-*Ilustrasi kejahatan lintas yurisdiksi (pic: Meta AI).*
+*Ilustrasi aktor deepfake (pic: Meta AI).*
 <br><br>
 ***Di atas kertas mereka bicara moral.
 Di server mereka menghitung laba.
