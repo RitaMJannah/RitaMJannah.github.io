@@ -118,7 +118,9 @@ Dunia harus memilih.
 Kalau dunia tidak memperlakukan deepfake porn sebagai kekerasan, maka hukum telah memutuskan bahwa tubuh manusia hanya data.
 
 Dan itu, adalah bentuk perbudakan paling modern.
+
 <br><br>
+
 **Referensi**
 
 Chesney, R., & Citron, D. (2019). Deep fakes: A looming challenge for privacy, democracy, and national security. California Law Review, 107(6), 1753–1820.
