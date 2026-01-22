@@ -1,5 +1,5 @@
 # Dewan Perdamaian ala Trump dan Politik “Peace Without the People”: Analisis Ilmiah atas Delegitimasi Representasi Palestina, Unilateralisme AS, dan Upaya Menyaingi Arsitektur PBB
-![dewan trump](images/0c00300c-e055-4ab9-826a-8b00c316c5fd.jpeg)
+![dewan trump](images/8d12fca1-9df1-4b8d-b191-700e15b596f6.jpeg)
 *Ilustrasi dewan perdamaian (pic: Trinity AI/Meta AI).*
 
 <br><br>
