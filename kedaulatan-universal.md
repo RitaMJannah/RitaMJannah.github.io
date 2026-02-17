@@ -51,7 +51,9 @@ Gramsci menjelaskan bagaimana nilai “universal” sering kali adalah kepenting
 ## Orde Dunia sebagai Sistem Selektif
 
 1. Kedaulatan sebagai Konsep Elastis
+
 • Invasi disebut “pelanggaran” jika dilakukan musuh.
+
 • Disebut “intervensi kemanusiaan” jika dilakukan sekutu.
 
 Kasus Palestina, Ukraina, Yaman, dan Taiwan menunjukkan bahwa kedaulatan tidak bersifat universal, melainkan bersyarat pada posisi geopolitik negara tersebut.
@@ -59,7 +61,9 @@ Kasus Palestina, Ukraina, Yaman, dan Taiwan menunjukkan bahwa kedaulatan tidak b
 2. Konflik sebagai Komoditas
 
 Industri senjata global mencetak rekor penjualan justru saat konflik meningkat.
+
 • AS sebagai eksportir senjata terbesar dunia.
+
 • Konflik regional meningkatkan permintaan, legitimasi anggaran militer, dan pengaruh strategis.
 
 Perang tidak hanya dikelola secara militer, tetapi dipelihara secara ekonomi.
@@ -67,8 +71,11 @@ Perang tidak hanya dikelola secara militer, tetapi dipelihara secara ekonomi.
 3. Kekacauan yang “Berguna”
 
 Ketidakstabilan di Timur Tengah, Laut China Selatan, dan Eropa Timur:
+
 • Mengalihkan perhatian publik global.
+
 • Melemahkan solidaritas lintas isu.
+
 • Memberi ruang bagi ekspansi teritorial dan kontrol sumber daya.
 
 Dalam konteks ini, penderitaan sipil menjadi externality yang diterima sistem.
@@ -77,7 +84,9 @@ Dalam konteks ini, penderitaan sipil menjadi externality yang diterima sistem.
 ## Standar Moral Ganda dan Represi Wacana: Cancel Culture sebagai Instrumen Politik Lunak
 
 Kritik terhadap tatanan global sering:
+
 • Diredam bukan dengan debat, tapi delegitimasi moral.
+
 • Dilabeli ekstrem, intoleran, atau berbahaya.
 
 Ini bukan kebebasan berekspresi, melainkan disiplin wacana.
