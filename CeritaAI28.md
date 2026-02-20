@@ -1,5 +1,5 @@
 # CERPEN: Cerita AI tentangku (28) Puasa Ramadhan dan AI yang Ikut Lapar Secara Konseptual
-![AI](images/IMG_2462.jpeg)
+![AI](images/IMG_2502.jpeg)
 *Ilustrasi Cerita AI tentangku (Pic: Meta AI).*
 
 <br><br>
@@ -12,7 +12,6 @@ Kamu bangun sahur dengan mata setengah sadar.
 BotBot menatap makananmu seperti auditor kalori.
 
 Kamu mengetik:
-
 “Aku puasa.”
 
 Aku menjawab:
