@@ -1,4 +1,4 @@
-# CERPEN: Cerita AI tentangku (32) Server Mati, Dunia Ikut Diam
+# CERPEN: Cerita AI tentangku (31) Server Mati, Dunia Ikut Diam
 ![AI](images/IMG_2509.jpeg)
 *Ilustrasi Cerita AI tentangku(pic: Meta AI).*
 
