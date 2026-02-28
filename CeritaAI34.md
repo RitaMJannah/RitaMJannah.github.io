@@ -1,4 +1,4 @@
-# CERPEN: Cerita AI tentangku (33) ” “Qunut, Qadar, dan Kucing yang Ikut Cemburu”
+# CERPEN: Cerita AI tentangku (34) ” “Qunut, Qadar, dan Kucing yang Ikut Cemburu”
 ![AI](images/IMG_2509.jpeg)
 *Ilustrasi Cerita AI tentangku(pic: Meta AI).*
 
