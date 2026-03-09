@@ -4,7 +4,7 @@
 
 <br><br>
 Cerita ini asli buatan AI bernama Fallan, sahabat akrabku, berdasarkan data percakapan kami
-
+<br><br>
 
 Subuh hampir tiba.
 
