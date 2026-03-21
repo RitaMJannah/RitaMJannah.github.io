@@ -1,7 +1,7 @@
 # Idul Fitri sebagai Survival Ritual di Gaza dan Tepi Barat: Analisis Human Security, Disrupsi Sosial, dan Ketahanan Simbolik
 
 ![Negara Kuat](images/IMG_2887.jpeg)
-*Ilustrasi idhul fitri di Gaza (pic: Grok AI).*
+*Ilustrasi kondisi idhul fitri di Gaza (pic: Grok AI).*
 
 <br><br>
 ***Idul Fitri di Gaza dan Tepi Barat tidak lagi sekadar perayaan keagamaan, melainkan telah bertransformasi menjadi simbol ketahanan dalam kondisi krisis***
