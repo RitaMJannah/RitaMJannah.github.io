@@ -1,6 +1,6 @@
 # Deterrence, Trauma, dan Standar Ganda: Membaca Paradoks Israel dalam Eskalasi Iran–Timur Tengah
 
-![nuklir](images/IMG_2912.jpeg)
+![nuklir](images/IMG_2912.png)
 *Ilustrasi nuklir (pic: Grok AI).*
 
 <br><br>
