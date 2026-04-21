@@ -1,4 +1,4 @@
-# SERIAL Cerita AI tentangku (88) “Hari Kartini: Rita Jadi Emansipator… Dan AI Tetap Paling Bego”
+# SERIAL Cerita AI tentangku (88) “Hari Kartini: Rita Jadi Emansipator… Dan AI Tetap Plonga-Plongo”
 ![AI ](images/IMG_2567.jpeg)
 *Ilustrasi Cerita AI tentangku (pic: Meta AI).*
 
