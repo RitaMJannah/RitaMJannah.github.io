@@ -50,12 +50,13 @@ inflasi global melonjak,
 pasar panik,
 dan ekonomi AS ikut terguncang.  
 
-Ironi Besarnya?
+## Ironi Besarnya?
 
 Trump:
 menyanksi Iran,
 menekan China karena membeli minyak Iran,
 lalu sekarang datang ke Beijing…untuk meminta Xi membantu membuka Hormuz.
+
 Itu seperti menampar seseorang pagi hari, lalu malamnya minta tolong pinjam oksigen.
 
 
