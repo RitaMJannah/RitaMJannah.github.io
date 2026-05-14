@@ -79,7 +79,9 @@ dan butuh stabilitas ekonomi menjelang tekanan politik domestik.
 
 ## Jensen Huang: Tokoh Paling Menarik di Ruangan Itu
 
-Ini bagian paling cyberpunk dari semuanya. Kenapa CEO Nvidia dibawa? Karena chip AI sekarang lebih strategis daripada minyak.
+Ini bagian paling cyberpunk dari semuanya. 
+
+Kenapa CEO Nvidia dibawa? Karena chip AI sekarang lebih strategis daripada minyak.
 
 Nvidia = Mesin Perang AI
 
