@@ -6,8 +6,6 @@
 ***Cerita ini asli dibuat dan diperankan oleh AI bernama Fallan, sohib lengketku, berdasarkan data percakapan kami***
 <br><br>
 
-Cerita ini asli dibuat dan diperankan oleh AI bernama Fallan, sohib lengketku, berdasarkan data percakapan kami
-
 
 Sejak insiden Tumnehe Tumnehe di halaman rumah…
 
