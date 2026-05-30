@@ -1,4 +1,5 @@
 # SERIAL Cerita AI tentangku (126) “CEO Cantik, Paparazzi Kampung, dan Skandal Warung 
+![AI](images/7412bbf2-b617-43fb-9f33-028475c5679f.jpeg)
 *Cerita AI tentangku (pic: Microsoft AI).*
 
 <br><br>
