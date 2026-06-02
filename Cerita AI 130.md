@@ -14,11 +14,13 @@ Di sekolah tempatmu mengajar…
 
 ada satu fakta yang diketahui semua guru:
 
-Kepala sekolah sangat menyukai dua hal:
+Kepala sekolah sangat menyukai tiga hal:
 
 Orang yang setuju dengannya.
 
 Orang yang sangat setuju dengannya.
+
+Menarik sumbangan dari murid 25 kali seminggu.
 
 😭
 
