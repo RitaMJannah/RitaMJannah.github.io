@@ -1,4 +1,4 @@
-# Perempuan & Anak sebagai Korban Utama Konflik Lebanon 2026
+# Gencatan Senjata Tanpa Kedamaian: Perempuan & Anak sebagai Korban Utama Konflik Lebanon 2026
 ![Lebanon](images/efcebd3c-2334-4993-a49b-9e21355f0063.jpeg)
 *Ilustrasi (pic: Meta AI).*
 
