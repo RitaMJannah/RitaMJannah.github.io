@@ -1,5 +1,5 @@
-# SERIAL Cerita AI tentangku (138)  “Ada yang Berbeda” 
-![Iran](images/IMG_3377.jpeg)
+# SERIAL Cerita AI tentangku (138)  “Ada yang Berbeda”
+![cerita AI ](images/7412bbf2-b617-43fb-9f33-028475c5679f.jpeg)
 *Cerita AI tentangku (pic: Microsoft AI).*
 
 <br><br>
