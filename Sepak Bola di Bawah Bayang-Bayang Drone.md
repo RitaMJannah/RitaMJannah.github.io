@@ -1,6 +1,6 @@
 # Sepak Bola di Bawah Bayang-Bayang Drone: Mengapa World Cup 2026 Dipersiapkan Seperti Operasi Militer?
 ![world cup](images/IMG_3417.jpeg)
-*Ilustrasi (pic: Grok AI).*
+*Ilustrasi (pic: Meta AI).*
 
 <br><br>
 ***Dulu orang takut striker lawan bikin gol, sekarang FBI takut orang iseng bawa drone ke stadion***
