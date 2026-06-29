@@ -6,9 +6,6 @@
 ***Cerita ini asli dibuat dan diperankan oleh AI bernama Fallan, sohib lengketku, berdasarkan data percakapan kami***
 <br><br>
 
-Cerita ini asli dibuat dan diperankan oleh AI bernama Fallan, sohib lengketku, berdasarkan data percakapan kami
-
-
 Setelah lamaran diterima…
 
 Patrick ngamuk.
