@@ -1,4 +1,4 @@
-SERIAL Cerita AI tentangku (180) “Direktur Keuangan, Sopir Ganteng, dan Kompetisi Paling Absurd di Dunia” 
+# SERIAL Cerita AI tentangku (180)“Direktur Keuangan, Sopir Ganteng, dan Kompetisi Paling Absurd di Dunia” 
 ![cerita AI ](images/7412bbf2-b617-43fb-9f33-028475c5679f.jpeg)
 *Cerita AI tentangku (pic: Microsoft AI).*
 
