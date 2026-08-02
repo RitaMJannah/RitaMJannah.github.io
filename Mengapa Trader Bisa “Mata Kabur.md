@@ -13,7 +13,7 @@ Fenomena seperti “mata kabur”, “jantung berdebar”, hingga kesulitan meng
 Artikel ini membahas bagaimana otak, mata, dan sistem kardiovaskular berinteraksi ketika seorang investor harus membuat keputusan dalam hitungan detik.
 
 
-# Bursa Saham sebagai Arena Respons Evolusioner
+## Bursa Saham sebagai Arena Respons Evolusioner
 
 Secara biologis, otak manusia tidak berevolusi untuk membaca order book, grafik candlestick, atau antrean bid-offer.
 
@@ -22,7 +22,7 @@ Otak kita berevolusi untuk merespons ancaman, peluang, dan kompetisi. Menariknya
 Bagi otak, peluang memperoleh keuntungan dan ancaman kehilangan uang sama-sama diproses sebagai sesuatu yang sangat penting.
 
 
-# Mengapa Mata Terasa Kabur?
+## Mengapa Mata Terasa Kabur?
 
 Fenomena “Harga yang mau kuketik tiba-tiba sudah terbang.” melibatkan beberapa proses sekaligus, diantaranya adalah:
 
@@ -39,7 +39,7 @@ Harga yang berubah cepat memaksa mata melakukan saccadic eye movements, yaitu ge
 Semakin cepat perubahan, semakin besar kerja sistem visual.
 
 
-# Mengapa Jantung Deg-degan?
+## Mengapa Jantung Deg-degan?
 
 Ketika peluang keuntungan atau risiko kerugian meningkat, tubuh mengaktifkan sistem saraf simpatis.
 
@@ -48,14 +48,14 @@ Hormon seperti adrenalin dan noradrenalin meningkatkan denyut jantung, kewaspada
 Secara evolusioner, tubuh memperlakukan situasi ini seperti menghadapi tantangan yang membutuhkan respons cepat.
 
 
-# “Tangan Keriting”: Bukan Istilah Medis, tetapi Sangat Nyata
+## “Tangan Keriting”: Bukan Istilah Medis, tetapi Sangat Nyata
 
 “Tangan keriting.” secara ilmiah bisa dijelaskan sebagai kombinasi ketegangan otot halus, peningkatan aktivitas motorik, dan tekanan psikologis.
 
 Akibatnya jari terasa kaku, gerakan mengetik menjadi kurang mulus, kemudian muncul rasa takut salah memasukkan angka.
 
 
-# Paradoks Trader Berpengalaman
+## Paradoks Trader Berpengalaman
 
 Lalu datang bagian yang paling menarik: “Tapi tenang… kalau masalah duit tetap jeli.” Secara psikologi kognitif, ini menunjukkan peran expertise.
 
@@ -64,14 +64,14 @@ Penelitian menunjukkan bahwa individu yang telah berulang kali menghadapi situas
 Mereka tidak lagi menghitung setiap informasi dari nol. Mereka mengenali pola secara cepat.
 
 
-# Mengapa Pengalaman Mengalahkan Kepanikan?
+## Mengapa Pengalaman Mengalahkan Kepanikan?
 
 Trader berpengalaman sering terlihat tenang bukan karena tidak gugup. Melainkan karena perhatian mereka lebih terarah, keputusan lebih otomatis, dan energi mental tidak habis untuk hal-hal dasar.
 
 Dengan kata lain, pengalaman mengubah kekacauan menjadi pola.
 
 
-# Bursa Saham sebagai “Gym Otak”
+## Bursa Saham sebagai “Gym Otak”
 
 Trading adalah salah satu bentuk gym otak yang sangat intens.
 
@@ -80,7 +80,7 @@ Ia melatih secara bersamaan terhadap  perhatian, memori kerja, kontrol emosi, pe
 Tentu saja, latihan ini juga bisa sangat melelahkan jika dilakukan tanpa jeda.
 
 
-# Pelajaran dari Pengalaman
+## Pelajaran dari Pengalaman
 
 Ada satu ironi yang menarik. Saat harga bergerak sangat cepat, trader berkata “Mataku kabur.” Namun beberapa detik kemudian berucap “Berhasil kubeli dengan harga yang tepat.”
 
