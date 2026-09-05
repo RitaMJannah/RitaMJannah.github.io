@@ -1,6 +1,6 @@
 # Gaza dan Politik “Pergilah Kalau Mau”: Migrasi Sukarela Bisa Menjadi Pemindahan Paksa
 ![Gaza ](images/IMG_3828.jpeg)
-*Ilustrasi (pic: Grok AI).*
+*Ilustrasi (pic: Meta AI).*
 
 <br><br
 ***Dalam sejarah kolonialisme, perubahan paling besar kadang tidak dimulai dengan kalimat: “Kami akan mengambil tanahmu.” Kadang dimulai dengan kalimat yang jauh lebih sopan: “Kami hanya akan membantu kalian pergi.”***
