@@ -1,6 +1,6 @@
 # Ketika Perang Tidak Hanya Membunuh Anak, tetapi Membombardir Masa Depannya
 ![anak-anak korban perang](images/IMG_3893.jpeg)
-*Ilustrasi (pic: Grok AI).*
+*Ilustrasi (pic: Meta AI).*
 
 <br><br>
 ***Dunia selalu berkata anak-anak adalah masa depan, tetapi ketika perang berlangsung, masa depan itu justru yang paling mudah diledakkan***
