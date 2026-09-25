@@ -1,6 +1,6 @@
 # Nekro-Kartografi: Ketika Rafah Dihapus Dari Peta untuk Dihapus Dari Sejarah
 ![Rafah ](images/IMG_3974.jpeg)
-*Ilustrasi (pic: Grok AI).*
+*Ilustrasi (pic: Meta AI).*
 
 <br><br>
 ***Urbicide, displacement, dan penghancuran ruang hidup sebuah kota Palestina berusia ribuan tahun, bukan cuma bangunan, namun juga hubungan manusia dengan tempat yang menyimpan hidup mereka***
