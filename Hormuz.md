@@ -1,5 +1,5 @@
 # Hormuz: Ketika Selat Menjadi Sandera Diplomasi
-![Hormuz ](images/IMG_4022.jpeg
+![Hormuz ](images/IMG_4022.jpeg)
 *Ilustrasi (pic: Grok AI).*
 
 <br><br>
