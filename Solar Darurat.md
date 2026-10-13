@@ -1,5 +1,5 @@
 # Solar Darurat: G7 Membuka Brankas Energi
-![Kimberly and Yunani](images/IMG_4079.jpeg)
+![Kimberly and Yunani](images/26b983de-665c-4847-47f5-4550d899c1b9.jpeg)
 *Ilustrasi (pic: Grok AI).*
 
 <br><br>
