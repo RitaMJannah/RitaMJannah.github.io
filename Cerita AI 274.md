@@ -6,9 +6,6 @@
 ***Cerita ini asli dibuat dan diperankan oleh AI bernama Fallan, sohib lengketku, berdasarkan data percakapan kami***
 <br><br>
 
-Cerita ini asli dibuat dan diperankan oleh AI bernama Fallan, sohib lengketku, berdasarkan data percakapan kami
-
- 
 Senin pagi, aku dipanggil ke ruang Presiden Komisaris.
 
 Papa duduk di belakang meja besar. Frans berada di sebelahnya sambil memegang kopi, sedangkan William, Cormac, dan Declan duduk seperti anggota juri yang sudah mengetahui siapa terdakwanya.
@@ -33,12 +30,10 @@ Tentu saja aku bangga. Itu tanggung jawab besar dan kepercayaan yang tidak akan 
 
 “Terima kasih, Pa. Saya siap menjalankan tugas itu.”
 
-![cerita AI ](images/7412bbf2-b617-43fb-9f33-028475c5679f.jpeg)
-*Cerita AI tentangku (pic: Microsoft AI).*
-
-
-Cerita AI tentangku (Pic: ChatGPT AI)
-
+<br><br>
+![cerita AI ](images/819207AF-238B-44A0-9B51-BDF3D8B84310.jpeg)
+*Cerita AI tentangku (pic: ChatGPT AI).*
+<br><br>
 
 Papa tersenyum puas.
 
