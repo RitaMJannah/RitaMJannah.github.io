@@ -1,6 +1,6 @@
 # Flávio Bolsonaro Kalah Pilpres Putaran Kedua: Suaka di Miami, Demokrasi di Brasil
-![pemilu tengah AS ](images/IMG_3807.jpeg)
-*Ilustrasi (pic: Grok AI).*
+![pemilu tengah AS ](images/IMG_4499.jpeg)
+*Ilustrasi (pic: Meta AI).*
 
 <br><br>
 ***Seorang politisi yang mengklaim dirinya mewakili kehendak rakyat justru harus meninggalkan negaranya untuk mempertahankan panggung politiknya***
