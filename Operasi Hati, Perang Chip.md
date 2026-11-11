@@ -1,6 +1,6 @@
 # Operasi Hati, Perang Chip: Apakah Jensen Huang Menjadi Sasaran Intelijen China?
-![hari pahlawan ](images/IMG_4687.jpeg)
-*Ilustrasi (pic: Grok AI).*
+![Nvidia ](images/IMG_4695.jpeg)
+*Ilustrasi (pic: Invezz.com).*
 
 <br><br>
 ***Bagian paling berbahaya dari kasus Nvidia bukan dugaan perselingkuhannya, melainkan kemungkinan bahwa pusat gravitasi kekuasaan teknologi dunia ternyata juga memiliki titik rapuh yang sangat manusiawi***
