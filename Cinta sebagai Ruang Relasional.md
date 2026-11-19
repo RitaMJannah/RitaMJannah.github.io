@@ -1,5 +1,5 @@
 # Cinta sebagai Ruang Relasional
-![cinta](images/IMG_4694.jpeg)
+![cinta](images/IMG_4701.jpeg)
 *Ilustrasi (pic: Meta AI).*
 
 <br><br>
