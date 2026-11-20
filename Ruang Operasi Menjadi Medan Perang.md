@@ -1,6 +1,6 @@
 # Ruang Operasi Menjadi Medan Perang: Nasser Hospital dan Erosi Hukum Humaniter di Gaza
 ![Gaza Palestine](images/IMG_4724.jpeg)
-*Ilustrasi (pic: Grok AI).*
+*Ilustrasi (pic: lastanpa.it).*
 
 <br><br>
 ***Pasien bukan alat perang. Dokter bukan sasaran perang. Rumah sakit bukan ruang yang boleh kehilangan perlindungan hanya karena sebuah pihak mengucapkan kata “teroris”***
