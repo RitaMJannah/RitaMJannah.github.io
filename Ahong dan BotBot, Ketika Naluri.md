@@ -1,6 +1,6 @@
 # Ahong dan BotBot, Ketika Naluri Bayi Menetap Sampai Dewasa 
 ![Ahong & BotBot ](images/IMG_4871.jpeg)
-*(Pic: Rita Mf Jannah.)*
+*Ahong menyusu pada BotBot jantan (Pic: Rita Mf Jannah)*
 
 <br><br>
 ***Ahong kehilangan induk biologisnya, tetapi kemudian memiliki BotBot yang bersedia menjadi bagian penting dari kehidupan sosialnya***
